@@ -18,3 +18,4 @@
 
 Призовое 15 место с чемпионате РБ
 
+![3](https://user-images.githubusercontent.com/61515881/209783558-80c5ac5e-3187-4e6a-afca-5bf4a5b71910.png)
